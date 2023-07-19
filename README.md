@@ -8,7 +8,7 @@
 ##### Disclaimer:  
 This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation
 
-WHAT TO DO IF YOU ARE STOPPED BY IMMIGRATION OFFICERS 
+#.What To Do If You Are Stopped By Immigration Officers
 
 It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned.
 
