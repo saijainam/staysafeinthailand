@@ -47,7 +47,7 @@ Seek legal support, please see the list below
 
 ### TIPS ON STAYING SAFE
 
-1. Maintain a low profile: it is important to minimize your visibility and avoid drawing unnecessary attention to yourself. This includes being cautious about sharing personal information and limiting public exposure on social media platforms.
+1. Maintain a low profile: It is important to minimize your visibility and avoid drawing unnecessary attention to yourself. This includes being cautious about sharing personal information and limiting public exposure on social media platforms.
 
 2. Be cautious when visiting Burmese restaurants or bars: While it's important to support your community, it's also crucial to be mindful of potential risks.
 
