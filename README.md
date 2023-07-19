@@ -1,6 +1,6 @@
 
 # Stay Safe in Thailand
-## For human rights defenders 
+## _For human rights defenders_
 
 
 #### About this guide: This is for human rights defenders staying in Thailand.  
@@ -8,6 +8,7 @@
 #### _Disclaimer:_  
 **_This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation_**
 
+##### Content
 * [What to do if you are stopped by immigration Officers](#what-to-to-if-you-are-stopped-by-immigration-officers)
 *  [Important to know](#important-to-know-that)
 *  [What to do if immigration officers arrest you](#what-to-do-if-immigration-officers-arrest-you)
