@@ -29,18 +29,18 @@ _It’s the job of the Thai authorities to keep people safe in the Kingdom and t
 
 ### IMPORTANT TO KNOW THAT
 
-There is no need to pay fees to the police. 
-The police do not have the right to check your phone. You do not need to give them your mobile phone. 
-Be aware that there could be a person pretending to be an officer from the immigration office or from a visa application center asking for money. They might tell you to send money as soon as possible. Legitimate officers will never contact you to ask for cash in person or by email or by phone.
+* There is no need to pay fees to the police.
+* The police do not have the right to check your phone. You do not need to give them your mobile phone.
+* Be aware that there could be a person pretending to be an officer from the immigration office or from a visa application center asking for money. They might tell you to send money as soon as possible. 
 
 
 ### WHAT TO DO IF IMMIGRATION OFFICERS ARREST YOU
 
-If detained by Thai police immigration, ensure that they provide valid grounds for your detention.
-Be aware of the maximum detention period allowed under Thai immigration law 48 hours initially, extendable up to seven days. 
-If your detention exceeds the allowed period (seven days), know that the official must apply to the Court for an order to further detain you.
-Understand that the Court will assess the necessity of further detention and may order it for a maximum period of twelve days at each application.
-In some cases, the Court may decide that temporary release is appropriate, allowing you to be released from detention. 
+* If detained by Thai police immigration, ensure that they provide valid grounds for your detention.
+* Be aware of the maximum detention period allowed under Thai immigration law 48 hours initially, extendable up to seven days. 
+* If your detention exceeds the allowed period (seven days), know that the official must apply to the Court for an order to further detain you.
+* Understand that the Court will assess the necessity of further detention and may order it for a maximum period of twelve days at each application.
+* In some cases, the Court may decide that temporary release is appropriate, allowing you to be released from detention. 
 Seek legal support, please see the list below
 
 
