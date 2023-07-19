@@ -6,7 +6,7 @@
 #### About this guide: This is for human rights defenders staying in Thailand.  
 
 ##### Disclaimer:  
-This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation
+**This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation**
 
 * [What to do if you are stopped by immigration Officers](#What-To-Do-If-You-Are-Stopped-By-Immigration-Officers)
 *  [Important to know](#IMPORTANT-TO-KNOW-THAT)
@@ -17,11 +17,14 @@ This guide is not intended as legal advice. If you need specific legal advice, y
 ### What To Do If You Are Stopped By Immigration Officers
 It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned.
 
-Remain calm, polite and cooperative: If approached by immigration officers, stay calm and maintain a cooperative attitude. It's essential to create a positive and respectful interaction, even if you feel apprehensive or anxious. Remember that being polite and respectful can often help de-escalate the situation. 
-Present your documents when requested: When asked to show your documents, present them as requested. Ensure you have your passport, visa, and any other relevant identification readily available. 
-Assert your visa status if questioned: If the officers question your presence or visa status, calmly assert that you are in Thailand based on the visa you possess. Provide any relevant documentation to support your claim. However, avoid engaging in arguments or becoming confrontational. Politely state the facts and let the officers carry out their duties. 
-Refrain from allowing access to your phone without a legal basis: Immigration officers generally do not have the right to check the contents of your phone without a proper legal basis. If they request to search your phone, politely ask them for the specific legal grounds that justify this action. If there is no legitimate reason, you can respectfully decline their request.
-Avoid unnecessary disclosures: While being cooperative, it's important to be cautious about sharing personal information beyond what is necessary. You have the right to privacy and are not obliged to disclose personal details such as your address, phone number, information about other people, or work-related information unless it is specifically required by law or a legitimate immigration request.
+* Remain calm, polite and cooperative: If approached by immigration officers, stay calm and maintain a cooperative attitude. It's essential to create a positive and respectful interaction, even if you feel apprehensive or anxious. Remember that being polite and respectful can often help de-escalate the situation. 
+* Present your documents when requested: When asked to show your documents, present them as requested. Ensure you have your passport, visa, and any other relevant identification readily available. 
+* Assert your visa status if questioned: If the officers question your presence or visa status, calmly assert that you are in Thailand based on the visa you possess. Provide any relevant documentation to support your claim. However, avoid engaging in arguments or becoming confrontational. Politely state the facts and let the officers carry out their duties. 
+* Refrain from allowing access to your phone without a legal basis: Immigration officers generally do not have the right to check the contents of your phone without a proper legal basis. If they request to search your phone, politely ask them for the specific legal grounds that justify this action. If there is no legitimate reason, you can respectfully decline their request.
+* Avoid unnecessary disclosures: While being cooperative, it's important to be cautious about sharing personal information beyond what is necessary. You have the right to privacy and are not obliged to disclose personal details such as your address, phone number, information about other people, or work-related information unless it is specifically required by law or a legitimate immigration request.
+
+
+
 
 ### IMPORTANT TO KNOW THAT
 
