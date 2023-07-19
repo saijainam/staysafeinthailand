@@ -14,7 +14,7 @@ This guide is not intended as legal advice. If you need specific legal advice, y
 *  [Tips on staying safe](#TIPS-ON-STAYING-SAFE)
 *  [Information on Thai Immigration Law](#INFORMATION-ON-THAI-IMMIGRATION-LAW)
 
-What To Do If You Are Stopped By Immigration Officers
+### What To Do If You Are Stopped By Immigration Officers
 It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned.
 
 Remain calm, polite and cooperative: If approached by immigration officers, stay calm and maintain a cooperative attitude. It's essential to create a positive and respectful interaction, even if you feel apprehensive or anxious. Remember that being polite and respectful can often help de-escalate the situation. 
@@ -23,7 +23,7 @@ Assert your visa status if questioned: If the officers question your presence or
 Refrain from allowing access to your phone without a legal basis: Immigration officers generally do not have the right to check the contents of your phone without a proper legal basis. If they request to search your phone, politely ask them for the specific legal grounds that justify this action. If there is no legitimate reason, you can respectfully decline their request.
 Avoid unnecessary disclosures: While being cooperative, it's important to be cautious about sharing personal information beyond what is necessary. You have the right to privacy and are not obliged to disclose personal details such as your address, phone number, information about other people, or work-related information unless it is specifically required by law or a legitimate immigration request.
 
-# IMPORTANT TO KNOW THAT
+### IMPORTANT TO KNOW THAT
 
 There is no need to pay fees to the police. 
 The police do not have the right to check your phone. You do not need to give them your mobile phone. 
