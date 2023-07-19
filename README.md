@@ -1,15 +1,13 @@
 
-# staysafeinthailand
-## Overview of the project Heading
-### test
+# Stay Safe in tTailand
+## For human rights defenders 
 
 
-STAY SAFE IN THAILAND
+#### About this guide: This is for human rights defenders staying in Thailand.  
 
-For human rights defenders 
+##### Disclaimer:  
+This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation
 
-About this guide: This is for human rights defenders staying in Thailand.  
-Disclaimer:  This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation
 WHAT TO DO IF YOU ARE STOPPED BY IMMIGRATION OFFICERS 
 It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned.
 
