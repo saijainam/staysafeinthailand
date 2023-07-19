@@ -3,7 +3,7 @@
 ## _For human rights defenders_
 
 
-#### About this guide: This is for human rights defenders staying in Thailand.  
+#### About this guide: This is for foreign human rights defenders staying in Thailand.  
 
 #### _Disclaimer:_  
 **_This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation_**
