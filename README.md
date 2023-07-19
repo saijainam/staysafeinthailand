@@ -14,7 +14,7 @@
 *  [Tips on staying safe](#TIPS-ON-STAYING-SAFE)
 *  [Information on Thai Immigration Law](#INFORMATION-ON-THAI-IMMIGRATION-LAW)
 
-### What To Do If You Are Stopped By Immigration Officers
+### [What To Do If You Are Stopped By Immigration Officers]
 
 _It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned._
 
@@ -27,7 +27,7 @@ _It’s the job of the Thai authorities to keep people safe in the Kingdom and t
 
 
 
-# IMPORTANT TO KNOW THAT
+#[IMPORTANT TO KNOW THAT]
 
 There is no need to pay fees to the police. 
 The police do not have the right to check your phone. You do not need to give them your mobile phone. 
