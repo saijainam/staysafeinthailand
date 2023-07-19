@@ -5,7 +5,7 @@
 
 #### About this guide: This is for human rights defenders staying in Thailand.  
 
-##### Disclaimer:  
+#### Disclaimer:  
 **This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation**
 
 * [What to do if you are stopped by immigration Officers](#what-to-to-if-you-are-stopped-by-immigration-officers)
