@@ -8,7 +8,11 @@
 ##### Disclaimer:  
 This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation
 
-[What To Do If You Are Stopped By Immigration Officers](#What-To-Do-If-You-Are-Stopped-By-Immigration-Officers)
+[What to do if you are stopped by immigration Officers](#What-To-Do-If-You-Are-Stopped-By-Immigration-Officers)
+[Important to know](#IMPORTANT-TO-KNOW-THAT)
+[What to do if immigration officers arrest you](#WHAT-TO-DO-IF-IMMIGRATION-OFFICERS-ARREST-YOU)
+[Tips on staying safe](#TIPS-ON-STAYING-SAFE)
+[Information on Thai Immigration Law](#INFORMATION-ON-THAI-IMMIGRATION-LAW)
 
 # What To Do If You Are Stopped By Immigration Officers
 It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned.
@@ -19,14 +23,14 @@ Assert your visa status if questioned: If the officers question your presence or
 Refrain from allowing access to your phone without a legal basis: Immigration officers generally do not have the right to check the contents of your phone without a proper legal basis. If they request to search your phone, politely ask them for the specific legal grounds that justify this action. If there is no legitimate reason, you can respectfully decline their request.
 Avoid unnecessary disclosures: While being cooperative, it's important to be cautious about sharing personal information beyond what is necessary. You have the right to privacy and are not obliged to disclose personal details such as your address, phone number, information about other people, or work-related information unless it is specifically required by law or a legitimate immigration request.
 
-IMPORTANT TO KNOW THAT: 
+# IMPORTANT TO KNOW THAT
 
 There is no need to pay fees to the police. 
 The police do not have the right to check your phone. You do not need to give them your mobile phone. 
 Be aware that there could be a person pretending to be an officer from the immigration office or from a visa application center asking for money. They might tell you to send money as soon as possible. Legitimate officers will never contact you to ask for cash in person or by email or by phone.
 
 
-WHAT TO DO IF IMMIGRATION OFFICERS ARREST YOU: 
+# WHAT TO DO IF IMMIGRATION OFFICERS ARREST YOU
 
 If detained by Thai police immigration, ensure that they provide valid grounds for your detention.
 Be aware of the maximum detention period allowed under Thai immigration law 48 hours initially, extendable up to seven days. 
@@ -36,7 +40,7 @@ In some cases, the Court may decide that temporary release is appropriate, allow
 Seek legal support, please see the list below
 
 
-TIPS ON STAYING SAFE
+# TIPS ON STAYING SAFE
 
 1. Maintain a low profile: it is important to minimize your visibility and avoid drawing unnecessary attention to yourself. This includes being cautious about sharing personal information and limiting public exposure on social media platforms.
 
@@ -61,7 +65,7 @@ TIPS ON STAYING SAFE
 Remember, these tips are intended to provide general guidance. Each situation is unique, so it's essential to assess the specific risks you may face and adapt these suggestions accordingly. Stay vigilant, prioritize your safety, and seek assistance whenever necessary.
 
 
-INFORMATION ON THAI IMMIGRATION LAW: 
+# INFORMATION ON THAI IMMIGRATION LAW: 
 
 Thai Language: https://www.immigration.go.th/?page_id=2577
 
