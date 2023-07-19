@@ -8,11 +8,13 @@
 ##### Disclaimer:  
 This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as Burma Lawyer Council,  Protection International, MAP Foundation
 
-[What to do if you are stopped by immigration Officers](#What-To-Do-If-You-Are-Stopped-By-Immigration-Officers)
-[Important to know](#IMPORTANT-TO-KNOW-THAT)
-[What to do if immigration officers arrest you](#WHAT-TO-DO-IF-IMMIGRATION-OFFICERS-ARREST-YOU)
-[Tips on staying safe](#TIPS-ON-STAYING-SAFE)
-[Information on Thai Immigration Law](#INFORMATION-ON-THAI-IMMIGRATION-LAW)
+# [What to do if you are stopped by immigration Officers](#What-To-Do-If-You-Are-Stopped-By-Immigration-Officers)
+
+# [Important to know](#IMPORTANT-TO-KNOW-THAT)
+
+# [What to do if immigration officers arrest you](#WHAT-TO-DO-IF-IMMIGRATION-OFFICERS-ARREST-YOU)
+# [Tips on staying safe](#TIPS-ON-STAYING-SAFE)
+# [Information on Thai Immigration Law](#INFORMATION-ON-THAI-IMMIGRATION-LAW)
 
 # What To Do If You Are Stopped By Immigration Officers
 It’s the job of the Thai authorities to keep people safe in the Kingdom and to ensure that only people with the right to be in Thailand are present. That means they have the duty to follow up on anything they might think is suspicious or out of order. The guidelines that follow are designed as a help for any interactions with the authorities and for the benefit of all concerned.
