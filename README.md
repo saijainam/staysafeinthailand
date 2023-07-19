@@ -27,7 +27,7 @@ _It’s the job of the Thai authorities to keep people safe in the Kingdom and t
 
 
 
-# IMPORTANT TO KNOW THAT
+### IMPORTANT TO KNOW THAT
 
 There is no need to pay fees to the police. 
 The police do not have the right to check your phone. You do not need to give them your mobile phone. 
