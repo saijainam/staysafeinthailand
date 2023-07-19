@@ -1,5 +1,5 @@
 
-# Stay Safe in tTailand
+# Stay Safe in Thailand
 ## For human rights defenders 
 
 
