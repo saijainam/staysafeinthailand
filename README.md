@@ -30,7 +30,7 @@ The police do not have the right to check your phone. You do not need to give th
 Be aware that there could be a person pretending to be an officer from the immigration office or from a visa application center asking for money. They might tell you to send money as soon as possible. Legitimate officers will never contact you to ask for cash in person or by email or by phone.
 
 
-# WHAT TO DO IF IMMIGRATION OFFICERS ARREST YOU
+### WHAT TO DO IF IMMIGRATION OFFICERS ARREST YOU
 
 If detained by Thai police immigration, ensure that they provide valid grounds for your detention.
 Be aware of the maximum detention period allowed under Thai immigration law 48 hours initially, extendable up to seven days. 
@@ -40,7 +40,7 @@ In some cases, the Court may decide that temporary release is appropriate, allow
 Seek legal support, please see the list below
 
 
-# TIPS ON STAYING SAFE
+### TIPS ON STAYING SAFE
 
 1. Maintain a low profile: it is important to minimize your visibility and avoid drawing unnecessary attention to yourself. This includes being cautious about sharing personal information and limiting public exposure on social media platforms.
 
@@ -65,7 +65,7 @@ Seek legal support, please see the list below
 Remember, these tips are intended to provide general guidance. Each situation is unique, so it's essential to assess the specific risks you may face and adapt these suggestions accordingly. Stay vigilant, prioritize your safety, and seek assistance whenever necessary.
 
 
-# INFORMATION ON THAI IMMIGRATION LAW: 
+### INFORMATION ON THAI IMMIGRATION LAW: 
 
 Thai Language: https://www.immigration.go.th/?page_id=2577
 
