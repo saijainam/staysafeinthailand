@@ -2,7 +2,7 @@
 # Stay Safe in Thailand
 ## _For human rights defenders_
 
-### [Burmese version](../blob/master/burmese)
+### [Burmese version](#burmese-version)
 #### About this guide: This is for foreign human rights defenders staying in Thailand.  
 
 #### _Disclaimer:_  
@@ -91,5 +91,5 @@ OTHER USEFUL RESOURCES
 
 USEFUL CONTACTS
 
-# burmese
+# Burmese version
 
