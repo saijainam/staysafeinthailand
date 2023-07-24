@@ -72,10 +72,9 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 ### INFORMATION ON THAI IMMIGRATION LAW: 
 
-Thai Language: https://www.immigration.go.th/?page_id=2577
+[Thai Language](https://www.immigration.go.th/?page_id=2577)
 
-English translation: https://www.samuiforsale.com/law-texts/immigration-act.html
-
+[English translation](https://www.samuiforsale.com/law-texts/immigration-act.html)
 
 OTHER USEFUL RESOURCES 
 
