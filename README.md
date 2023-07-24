@@ -79,7 +79,7 @@ English translation: https://www.samuiforsale.com/law-texts/immigration-act.html
 
 OTHER USEFUL RESOURCES 
 
-[Digital Security Resources](https://www.digiseclab.org/courses/DigitalSafety)
+[Digital security resources](https://www.digiseclab.org/courses/DigitalSafety)
 
 [Resources on learning Thai](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Basic%2520Thai%2520for%2520Myanmar%2520Migrant%2520Workers%2520Textbook.pdf)
 
