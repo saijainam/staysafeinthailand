@@ -2,7 +2,7 @@
 # Stay Safe in Thailand
 ## _For human rights defenders_
 
-### [Burmese version](../blob/master/burmese)
+### [Burmese version](#burmese)
 #### About this guide: This is for foreign human rights defenders staying in Thailand.  
 
 #### _Disclaimer:_  
@@ -79,18 +79,17 @@ English translation: https://www.samuiforsale.com/law-texts/immigration-act.html
 
 OTHER USEFUL RESOURCES 
 
-Digital Security resources: https://www.digiseclab.org/courses/DigitalSafety
+[Digital security resources](https://www.digiseclab.org/courses/DigitalSafety)
 
-Resources on learning Thai: https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Basic%2520Thai%2520for%2520Myanmar%2520Migrant%2520Workers%2520Textbook.pdf
+[Resources on learning Thai](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Basic%2520Thai%2520for%2520Myanmar%2520Migrant%2520Workers%2520Textbook.pdf)
 
-Self-care of coping skills in stressful situations: https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Self-help%2520Booklet%2520for%2520Detainees.pdf
+[Self-care of coping skills in stressful situations](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Self-help%2520Booklet%2520for%2520Detainees.pdf)
 
-Tips on Thai culture: /https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Tips%2520for%2520Migrant%2520Workers%2520on%2520the%2520Culture%2520of%2520Thailand_ENG.pdf
-
+[Tips on Thai culture](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Tips%2520for%2520Migrant%2520Workers%2520on%2520the%2520Culture%2520of%2520Thailand_ENG.pdf)
 
 
 
 USEFUL CONTACTS
 
-# burmese
+# Burmese
 
