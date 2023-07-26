@@ -8,7 +8,7 @@
 #### _Disclaimer:_  
 **_This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as [Burma Lawyer Council](https://blc-burma.org/),  [Protection International](https://www.protectioninternational.org/contact/), [MAP Foundation](https://mapfoundationcm.org/eng/)_**
 
-👉  **_If you have any questions or feedback, please reach out to:  staysafeinthailand@protonmail.com_**
+👉  **_If you have any questions or feedback, please reach out to:  <staysafeinthailand@protonmail.com>_**
 
 ### Content
 * [What to do if you are stopped by immigration officers](#what-to-do-if-you-are-stopped-by-immigration-officers)
@@ -95,10 +95,10 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 ### USEFUL CONTACTS
 
-* Burma Lawyer's Council (https://blc-burma.org/)
-* Migrant Assistance Program (MAP) Foundation (https://www.mapfoundationcm.org/) Tel: 053-328134
-* AAPP (Assistance Association for Political Prisoners)(https://aappb.org/)
-* IOM (International Organization for Migration) Mae Sot office: (https://thailand.iom.int/contact) Tel 055-039-809
+* Burma Lawyer's Council <https://blc-burma.org>
+* Migrant Assistance Program (MAP) Foundation <https://www.mapfoundationcm.org> Tel: 053-328134
+* AAPP (Assistance Association for Political Prisoners)<https://aappb.org>
+* IOM (International Organization for Migration) Mae Sot office: <https://thailand.iom.int/contact> Tel 055-039-809
 
 # Burmese Language
 # မြန်မာဘာသာ 🇲🇲 
