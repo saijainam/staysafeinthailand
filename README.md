@@ -95,10 +95,10 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 ### USEFUL CONTACTS
 
-Burma Lawyer's Council 
-https://blc-burma.org/
+...Burma Lawyer's Council 
+...https://blc-burma.org/
 
-Migrant Assistance Program (MAP) Foundation
+...Migrant Assistance Program (MAP) Foundation
 https://www.mapfoundationcm.org/
 Tel: 053-328134
 
