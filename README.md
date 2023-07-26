@@ -35,8 +35,6 @@ _It’s the job of the Thai authorities to keep people safe in the Kingdom and t
 
 ### IMPORTANT TO KNOW THAT
 
-* There is no need to pay fees to the police.
-* The police do not have the right to check your phone. You do not need to give them your mobile phone.
 * Be aware that there could be a person pretending to be an officer from the immigration office or from a visa application center asking for money. They might tell you to send money as soon as possible. 
 
 
@@ -95,9 +93,9 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 ### USEFUL CONTACTS
 
-* Burma Lawyer's Council <https://blc-burma.org>
-* Migrant Assistance Program (MAP) Foundation <https://www.mapfoundationcm.org> Tel: 053-328134
-* AAPP (Assistance Association for Political Prisoners)<https://aappb.org>
+* Burma Lawyer's Council: <https://blc-burma.org>
+* Migrant Assistance Program (MAP) Foundation: <https://www.mapfoundationcm.org> Tel: 053-328134
+* AAPP (Assistance Association for Political Prisoners): <https://aappb.org>
 * IOM (International Organization for Migration) Mae Sot office: <https://thailand.iom.int/contact> Tel 055-039-809
 
 # Burmese Language
@@ -135,8 +133,6 @@ _ယခုကဲ့သို့ ရဲများကစစ်ဆေးမေး
 
 ### အရေးတကြီးသိထားရမည့်အချက်များ 
 
-* လူဝင်မှုကြီးကြပ်ရေးအရာရှိများ/ရဲများကို ငွေကြေးပေးရန်မလိုပါ။ 
-* ရဲများသည် သင့်ဖုန်းကို စစ်ဆေးပိုင်ခွင့် မရှိပါ။ သင့်အနေနှင့်လည်း သင်၏ဖုန်းကို ၎င်းတို့အားပြသရန်မလိုပါ။ 
 * သတိပြုရသည်မှာ လူဝင်မှုကြီးကြပ်ရေးရုံးမှ အရာရှိတစ်ဦး သို့မဟုတ် ဗီဇာလျှောက်လွှာစင်တာမှ အရာရှိတစ်ဦးအဖြစ် ဟန်ဆောင်ကာ ပိုက်ဆံတောင်းနေသူ ဖြစ်နိုင်သည် ဟုတ်၊ မဟုတ်ကို သတိပြုပါ။ ထိုသူများသည် ပိုက်ဆံပေးရန်/လွှဲရန်သာ အနှေးနှင့်အမြန်တောင်းဆိုနိုင်သည်။ တရားဝင်အရာရှိများသည် လူကိုယ်တိုင်ဖြစ်စေ၊ အီးမေးလ်ဖြင့်ဖြစ်စေ ဖုန်းဖြင့်ဖြစ်စေ ငွေတောင်းခံရန် သင့်အား မည်သည့်အခါမျှ ဆက်သွယ်မည်မဟုတ်ပါ။
 
 
@@ -195,16 +191,8 @@ _ယခုကဲ့သို့ ရဲများကစစ်ဆေးမေး
 
 ### အဆက်အသွယ်များ
 
-Burma Lawyer's Council 
-https://blc-burma.org/
+* Burma Lawyer's Council: <https://blc-burma.org>
+* Migrant Assistance Program (MAP) Foundation: <https://www.mapfoundationcm.org> Tel: 053-328134
+* AAPP (Assistance Association for Political Prisoners): <https://aappb.org>
+* IOM (International Organization for Migration) Mae Sot office: <https://thailand.iom.int/contact> Tel 055-039-809
 
-Migrant Assistance Program (MAP) Foundation
-https://www.mapfoundationcm.org/
-Tel: 053-328134
-
-AAPP (Assistance Association for Political Prisoners)
-https://aappb.org/
-
-IOM (International Organization for Migration) Mae Sot office: 
-https://thailand.iom.int/contact
-Tel 055-039-809
