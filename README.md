@@ -56,13 +56,16 @@ Seek legal support, please see the list below
 2. **Be cautious when visiting restaurants or bars:** While it's important to support your community, it's also crucial to be mindful of potential risks.
 
 3. **Build a trusted network:** Establish connections with trusted individuals and organizations so that you could receive information about the situation in Chiang Mai and Mae Sot.
+
 4. **Stay informed about local laws and regulations:** Familiarize yourself with the laws and regulations in Thailand, particularly those related to immigration law (See link below on Thai immigration law)
+
 5.  **Secure communication channels:** Utilize encrypted messaging apps and other secure communication tools when communicating with your colleagues and friends to protect sensitive information.
+
 6. **Vary your routines:** Avoid establishing predictable routines that could make you vulnerable to surveillance or targeting. Change your routes, meeting locations, and daily activities regularly to reduce the chances of being tracked or monitored.
+  
 7. **Be cautious with public Wi-Fi:** Public Wi-Fi networks can be compromised, so avoid using them for any sensitive communications or accessing personal accounts. If necessary, use a virtual private network (VPN) to add an extra layer of security.
 
 8. **Assess your digital footprint:** Regularly review your online presence and remove or limit personal information that could be used against you. Be mindful of the digital trail you leave behind and take steps to protect your online identity. Don't keep information that could be sensitive for you or others on your devices. 
-
 
 9. **Develop a safety plan:** Create a comprehensive safety plan that includes emergency contacts, safe meeting places, and protocols to follow in case of threats or harassment. Do your friends know what to do if you're out of touch for XX time? Are there things that are also useful to carry with you just in case? This may only be money but also perhaps medicines for those who need them.
 
@@ -92,4 +95,11 @@ Remember, these tips are intended to provide general guidance. Each situation is
 ### USEFUL CONTACTS
 
 # Burmese
+# ထိုင်းနိုင်ငံတွင် ဘေးကင်းလုံခြုံစွာနေထိုင်နည်း လမ်းညွှန်
+
+## _လူ့အခွင့်အရေးတက်ကြွလှုပ်ရှားသူများအတွက်_ 
+
+#### လမ်းညွှန်အကြောင်း: ယခုလမ်းညွှန်သည် ထိုင်းနိုင်ငံတွင်နေထိုင်ကြသည့် လူ့အခွင့်အရေးတက်ကြွလှုပ်ရှားသူများ အတွက် ဖြစ်ပါသည်။  
+
+#### _ရှင်းလင်းဖော်ပြချက်:_  ယခုလမ်းညွှန်ချက်သည် ဥပဒေနည်းလမ်းများဖြင့​ အကြံပြုထားသော နည်းလမ်းများမဟုတ်ဘဲ ယေဘူယျနည်းလမ်းများဖြစ်သည့်အတွက် သင့်အနေနှင့် ပိုမိုတိကျသော ဥပဒေအကြံပြုချက်များ သိရှိလိုပါက ယခုအဖွဲ့အစည်းများကို [Burma Lawyer Council](https://blc-burma.org/),  [Protection International](https://www.protectioninternational.org/contact/), [MAP Foundation](https://mapfoundationcm.org/eng/)_** ဆက်သွယ်မေးမြန်းနိုင်ပါသည်။
 
