@@ -13,7 +13,7 @@
 *  [Important to know](#important-to-know-that)
 *  [What to do if immigration officers arrest you](#what-to-do-if-immigration-officers-arrest-you)
 *  [Tips on staying safe](#tips-on-staying-safe)
-*  [Information on Thai Immigration Law](#information-on-thai-immigration-law)
+*  [Thai Immigration Law](#thai-immigration-law)
 *  [Other useful resources](#Other-useful-resources)
 
 👉  **_If you have any questions or feedback, please reach out to:  staysafeinthailand@protonmail.com_**
@@ -73,7 +73,7 @@ Seek legal support, please see the list below
 Remember, these tips are intended to provide general guidance. Each situation is unique, so it's essential to assess the specific risks you may face and adapt these suggestions accordingly. Stay vigilant, prioritize your safety, and seek assistance whenever necessary.
 
 
-### INFORMATION ON THAI IMMIGRATION LAW: 
+### THAI IMMIGRATION LAW: 
 
 * [Immigration Law in Thai Language](https://www.immigration.go.th/?page_id=2577)
 
