@@ -162,9 +162,17 @@ _ယခုကဲ့သို့ ရဲများကစစ်ဆေးမေး
 
 ### ထိုင်းလူဝင်မှုကြီးကြပ်ရေးဥပဒေဆိုင်ရာ အချက်အလက်များ: 
 
-* ထိုင်းဘာသာ: https://www.immigration.go.th/?page_id=2577
+* [ထိုင်းဘာသာ:](https://www.immigration.go.th/?page_id=2577)
 
-* အင်္ဂလိပ်ဘာသာပြန်: https://www.samuiforsale.com/law-texts/immigration-act.html
+* [အင်္ဂလိပ်ဘာသာပြန်:](https://www.samuiforsale.com/law-texts/immigration-act.html)
 
 
+### အခြားအသုံးဝင်သောအရင်းအမြစ်များ 
 
+* [ဒီဂျစ်တယ်လုံခြုံရေးဆိုင်ရာ အရင်းအမြစ်များ:](https://www.digiseclab.org/courses/DigitalSafety)
+
+* [ထိုင်းဘာသာလေ့လာနိုင်သောနေရာ:](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Basic%2520Thai%2520for%2520Myanmar%2520Migrant%2520Workers%2520Textbook.pdf)
+
+* [စိတ်ဖိစီးသောအခြေအနေများတွင် မိမိကိုယ်ကိုယ်ဂရုစိုက်သော ဖြေရှင်းနည်းများ:](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Self-help%2520Booklet%2520for%2520Detainees.pdf)
+
+* [ထိုင်းယဉ်ကျေးမှုအကြောင်း သိကောင်းစရာများ:](/https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Tips%2520for%2520Migrant%2520Workers%2520on%2520the%2520Culture%2520of%2520Thailand_ENG.pdf)
