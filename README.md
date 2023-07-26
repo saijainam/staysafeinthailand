@@ -185,3 +185,6 @@ _ယခုကဲ့သို့ ရဲများကစစ်ဆေးမေး
 * [စိတ်ဖိစီးသောအခြေအနေများတွင် မိမိကိုယ်ကိုယ်ဂရုစိုက်သော ဖြေရှင်းနည်းများ:](https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Self-help%2520Booklet%2520for%2520Detainees.pdf)
 
 * [ထိုင်းယဉ်ကျေးမှုအကြောင်း သိကောင်းစရာများ:](/https://thailand.iom.int/sites/g/files/tmzbdl1371/files/documents/Tips%2520for%2520Migrant%2520Workers%2520on%2520the%2520Culture%2520of%2520Thailand_ENG.pdf)
+
+
+### အဆက်အသွယ်များ
