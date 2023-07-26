@@ -15,7 +15,7 @@
 *  [Tips on staying safe](#tips-on-staying-safe)
 *  [Information on Thai Immigration Law](#information-on-thai-immigration-law)
 
-👉  **_If you have any questions or feedback, please reach out to staysafeinthailand@protonmail.com_**
+👉  **_If you have any questions or feedback, please reach out to:  staysafeinthailand@protonmail.com_**
 
 ### What To Do If You Are Stopped By Immigration Officers
 
