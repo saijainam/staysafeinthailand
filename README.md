@@ -2,7 +2,7 @@
 # Stay Safe in Thailand
 ## _For human rights defenders_
 
-### 🇲🇲 [မြန်မာဘာသာ](#burmese)
+### 🇲🇲 [မြန်မာဘာသာ](#မြန်မာဘာသာ)
 #### About this guide: This is for foreign human rights defenders staying in Thailand.  
 
 #### _Disclaimer:_  
@@ -94,7 +94,7 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 ### USEFUL CONTACTS
 
-# Burmese
+# မြန်မာဘာသာ
 # ထိုင်းနိုင်ငံတွင် ဘေးကင်းလုံခြုံစွာနေထိုင်နည်း လမ်းညွှန်
 
 ## _လူ့အခွင့်အရေးတက်ကြွလှုပ်ရှားသူများအတွက်_ 
