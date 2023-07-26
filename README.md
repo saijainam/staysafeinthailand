@@ -94,6 +94,21 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 
 ### USEFUL CONTACTS
+
+Burma Lawyer's Council 
+https://blc-burma.org/
+
+Migrant Assistance Program (MAP) Foundation
+https://www.mapfoundationcm.org/
+Tel: 053-328134
+
+AAPP (Assistance Association for Political Prisoners)
+https://aappb.org/
+
+IOM (International Organization for Migration) Mae Sot office: 
+https://thailand.iom.int/contact
+Tel 055-039-809
+
 # Burmese Language
 # မြန်မာဘာသာ 🇲🇲 
 # ထိုင်းနိုင်ငံတွင် ဘေးကင်းလုံခြုံစွာနေထိုင်နည်း လမ်းညွှန်
@@ -188,3 +203,17 @@ _ယခုကဲ့သို့ ရဲများကစစ်ဆေးမေး
 
 
 ### အဆက်အသွယ်များ
+
+Burma Lawyer's Council 
+https://blc-burma.org/
+
+Migrant Assistance Program (MAP) Foundation
+https://www.mapfoundationcm.org/
+Tel: 053-328134
+
+AAPP (Assistance Association for Political Prisoners)
+https://aappb.org/
+
+IOM (International Organization for Migration) Mae Sot office: 
+https://thailand.iom.int/contact
+Tel 055-039-809
