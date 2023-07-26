@@ -15,6 +15,7 @@
 *  [Tips on staying safe](#tips-on-staying-safe)
 *  [Thai Immigration Law](#thai-immigration-law)
 *  [Other useful resources](#Other-useful-resources)
+*  [Useful contacts](#useful-contacts)
 
 👉  **_If you have any questions or feedback, please reach out to:  staysafeinthailand@protonmail.com_**
 
@@ -88,7 +89,7 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 
 
-USEFUL CONTACTS
+### USEFUL CONTACTS
 
 # Burmese
 
