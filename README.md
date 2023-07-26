@@ -50,24 +50,24 @@ Seek legal support, please see the list below
 
 ### TIPS ON STAYING SAFE
 
-1. Maintain a low profile: It is important to minimize your visibility and avoid drawing unnecessary attention to yourself. This includes being cautious about sharing personal information and limiting public exposure on social media platforms.
+1. **Maintain a low profile:** It is important to minimize your visibility and avoid drawing unnecessary attention to yourself. This includes being cautious about sharing personal information and limiting public exposure on social media platforms.
 
-2. Be cautious when visiting Burmese restaurants or bars: While it's important to support your community, it's also crucial to be mindful of potential risks.
+2. **Be cautious when visiting restaurants or bars:** While it's important to support your community, it's also crucial to be mindful of potential risks.
 
-3. Build a trusted network: Establish connections with trusted individuals and organizations so that you could receive information about the situation in Chiang Mai and Mae Sot. 
+3. **Build a trusted network:** Establish connections with trusted individuals and organizations so that you could receive information about the situation in Chiang Mai and Mae Sot. 
 
-3. Stay informed about local laws and regulations: Familiarize yourself with the laws and regulations in Thailand, particularly those related to immigration law (See link below on Thai immigration law)
+3. **Stay informed about local laws and regulations: **Familiarize yourself with the laws and regulations in Thailand, particularly those related to immigration law (See link below on Thai immigration law)
 
-4. Secure communication channels: Utilize encrypted messaging apps and other secure communication tools when communicating with your colleagues and friends to protect sensitive information. 
+4. **Secure communication channels: **Utilize encrypted messaging apps and other secure communication tools when communicating with your colleagues and friends to protect sensitive information. 
 
-5. Vary your routines: Avoid establishing predictable routines that could make you vulnerable to surveillance or targeting. Change your routes, meeting locations, and daily activities regularly to reduce the chances of being tracked or monitored.
+5. **Vary your routines:** Avoid establishing predictable routines that could make you vulnerable to surveillance or targeting. Change your routes, meeting locations, and daily activities regularly to reduce the chances of being tracked or monitored.
 
-6. Be cautious with public Wi-Fi: Public Wi-Fi networks can be compromised, so avoid using them for any sensitive communications or accessing personal accounts. If necessary, use a virtual private network (VPN) to add an extra layer of security.
+6.** Be cautious with public Wi-Fi:** Public Wi-Fi networks can be compromised, so avoid using them for any sensitive communications or accessing personal accounts. If necessary, use a virtual private network (VPN) to add an extra layer of security.
 
-7. Assess your digital footprint: Regularly review your online presence and remove or limit personal information that could be used against you. Be mindful of the digital trail you leave behind and take steps to protect your online identity. Don't keep information that could be sensitive for you or others on your devices. 
+7. **Assess your digital footprint: **Regularly review your online presence and remove or limit personal information that could be used against you. Be mindful of the digital trail you leave behind and take steps to protect your online identity. Don't keep information that could be sensitive for you or others on your devices. 
 
 
-8. Develop a safety plan: Create a comprehensive safety plan that includes emergency contacts, safe meeting places, and protocols to follow in case of threats or harassment. Do your friends know what to do if you're out of touch for XX time? Are there things that are also useful to carry with you just in case? This may only be money but also perhaps medicines for those who need them.
+8. **Develop a safety plan: **Create a comprehensive safety plan that includes emergency contacts, safe meeting places, and protocols to follow in case of threats or harassment. Do your friends know what to do if you're out of touch for XX time? Are there things that are also useful to carry with you just in case? This may only be money but also perhaps medicines for those who need them.
 
 
 Remember, these tips are intended to provide general guidance. Each situation is unique, so it's essential to assess the specific risks you may face and adapt these suggestions accordingly. Stay vigilant, prioritize your safety, and seek assistance whenever necessary.
