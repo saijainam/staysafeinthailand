@@ -101,5 +101,5 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 #### လမ်းညွှန်အကြောင်း: ယခုလမ်းညွှန်သည် ထိုင်းနိုင်ငံတွင်နေထိုင်ကြသည့် လူ့အခွင့်အရေးတက်ကြွလှုပ်ရှားသူများ အတွက် ဖြစ်ပါသည်။  
 
-#### _ရှင်းလင်းဖော်ပြချက်:_  ယခုလမ်းညွှန်ချက်သည် ဥပဒေနည်းလမ်းများဖြင့​ အကြံပြုထားသော နည်းလမ်းများမဟုတ်ဘဲ ယေဘူယျနည်းလမ်းများဖြစ်သည့်အတွက် သင့်အနေနှင့် ပိုမိုတိကျသော ဥပဒေအကြံပြုချက်များ သိရှိလိုပါက ယခုအဖွဲ့အစည်းများကို [Burma Lawyer Council](https://blc-burma.org/),  [Protection International](https://www.protectioninternational.org/contact/), [MAP Foundation](https://mapfoundationcm.org/eng/)_** ဆက်သွယ်မေးမြန်းနိုင်ပါသည်။
+#### _ရှင်းလင်းဖော်ပြချက်:_  **_ယခုလမ်းညွှန်ချက်သည် ဥပဒေနည်းလမ်းများဖြင့​ အကြံပြုထားသော နည်းလမ်းများမဟုတ်ဘဲ ယေဘူယျနည်းလမ်းများဖြစ်သည့်အတွက် သင့်အနေနှင့် ပိုမိုတိကျသော ဥပဒေအကြံပြုချက်များ သိရှိလိုပါက ယခုအဖွဲ့အစည်းများကို [Burma Lawyer Council](https://blc-burma.org/),  [Protection International](https://www.protectioninternational.org/contact/), [MAP Foundation](https://mapfoundationcm.org/eng/)_** ဆက်သွယ်မေးမြန်းနိုင်ပါသည်။
 
