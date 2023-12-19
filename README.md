@@ -8,7 +8,7 @@
 #### _Disclaimer:_  
 **_This guide is not intended as legal advice. If you need specific legal advice, you should contact a lawyer or organizations such as [Burma Lawyer Council](https://blc-burma.org/),  [Protection International](https://www.protectioninternational.org/contact/), [MAP Foundation](https://mapfoundationcm.org/eng/)_**
 
-👉 This resource is developed by Saijai Liangpunsakul **_If you have any questions or feedback, please reach out to:  <staysafeinthailand@protonmail.com>_**
+👉 This resource is developed by [Saijai Liangpunsakul](https://twitter.com/saijailiang) **_If you have any questions or feedback, please reach out to:  <staysafeinthailand@protonmail.com>_**
 
 
 ### Content
