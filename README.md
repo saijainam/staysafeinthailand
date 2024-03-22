@@ -102,7 +102,7 @@ Remember, these tips are intended to provide general guidance. Each situation is
 
 
 ### MENTAL HEALTH RESOURCES
-* https://mentalhealthmyanmar.com/ Developed by Sin Sar Bar
+* Mental Health resources for journalists and human rights defenders <https://mentalhealthmyanmar.com/> Developed by Sin Sar Bar
 
 # Burmese Language
 # မြန်မာဘာသာ 🇲🇲 
